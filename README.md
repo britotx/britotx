@@ -1,5 +1,3 @@
-## Bolsonaro 22
+## ENTRA SÓ NÃO FAZ BAGUNÇA 💩
 
-Meu nome e Kauan Brito, mas me chame de brito
-
-estou estudando no alura 
+Meu nome é Kauan Brito, e estudo no alura 🧑‍💻
